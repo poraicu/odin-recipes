@@ -5,3 +5,5 @@
 # I still have the idea that I should have all these things memorised and, somehow, people are better than me.
 
 # Only because they supposedly hasve better memory.
+
+# This isn't true since I'm the best through God.
